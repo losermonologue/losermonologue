@@ -9,7 +9,7 @@
 
 <img width="250" height="111" alt="image" src="https://github.com/user-attachments/assets/cc957aea-0640-4f76-9ee0-bf906a4666e8" />ㅤㅤㅤ <img width="250" height="111" alt="image" src="https://github.com/user-attachments/assets/10c0309c-c8aa-4bef-993a-29342fda6ae3" />ㅤㅤㅤ<img width="250" height="111" alt="image" src="https://github.com/user-attachments/assets/91eeb08c-6ffa-4f4e-9d9d-ef5ca9c5567d" />
 
-> 𝓘 𝓭𝓸𝓷𝓽 𝓱𝓪𝓿𝓮 𝓪 𝓹𝓲𝓷𝓷𝓮𝓭 𝓹𝓸𝓼𝓽!ㅤㅤㅤ ㅤㅤㅤ𝓻𝓫𝓵𝔁/𝓶𝓬 𝓪𝓻𝓰𝓼 & 𝓻𝓫𝓵𝔁 𝓰𝓮𝓷𝓮𝓻𝓪𝓵 𝓯𝓪𝓷𝓼ㅤㅤㅤㅤ@𝓜𝓘𝓢𝓢𝓘𝓝𝓖𝓒𝓗𝓘𝓛𝓓𝓡𝓔𝓝 𝓐𝓚𝓐ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ 𝓘𝓝𝓢𝓞𝓜𝓝 𝓓𝓝𝓘
+> 𝓘 𝓭𝓸𝓷𝓽 𝓱𝓪𝓿𝓮 𝓪 𝓹𝓲𝓷𝓷𝓮𝓭 𝓹𝓸𝓼𝓽!ㅤㅤㅤ ㅤㅤㅤ𝓻𝓫𝓵𝔁/𝓶𝓬 𝓪𝓻𝓰𝓼 & 𝓻𝓫𝓵𝔁 𝓰𝓮𝓷𝓮𝓻𝓪𝓵 𝓯𝓪𝓷𝓼ㅤㅤㅤㅤ@𝓜𝓘𝓢𝓢𝓘𝓝𝓖𝓒𝓗𝓘𝓛𝓓𝓡𝓔𝓝ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤ𝓐𝓚𝓐 𝓘𝓝𝓢𝓞𝓜𝓝 𝓓𝓝𝓘
 
 
 

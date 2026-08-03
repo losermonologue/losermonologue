@@ -6,7 +6,6 @@ do not copy my ponies please! taking LIGHT inspo is fine though.݁ ˖Ი𐑼⋆
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Skranji&size=15&duration=4000&pause=500&color=500D0C&background=FFFFFF00&width=448&height=56&lines=Now+don't+be+afraid+as+I+mutilate+you+with+this+blade;Your+body%2C+it+lays+In+a+pool+of+blood+on+display;I+won't+forget+the+beauty+of+your+blood+as+it+drips;Now+beg!+Now+scream!;Bow+down+and+bleed+for+me!)](https://git.io/typing-svg)
 
-![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zh4k7t75lwktftjfkowrwzkdga&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f2cd45)
 
 ⋆.ೃ࿔🎱*:･
 

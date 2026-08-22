@@ -22,7 +22,7 @@ MY STRAWPAGE IS BEST VIEWED ON PC chuu~ ♥ ──★ ˙🍙 ̟ !!
 
 【﻿♟️ ＤＮＩ ♟️】
 ● making dirty jokes very often when we arent friends.
-● 𝗣𝗲𝗱0𝗽𝗵𝗶𝗹𝗲, 𝗦3𝘅𝘂𝗮𝗹𝗶𝘇𝗲𝘀 𝗠𝗶𝗻𝗼𝗿𝘀, 𝗝𝗼𝗸𝗲𝘀 𝗔𝗯𝗼𝘂𝘁 𝗥×𝗽𝗲, 𝗲𝘁𝗰.
+● p𝗲𝗱o𝗽𝗵𝗶𝗹𝗲, se𝘅𝘂𝗮𝗹𝗶𝘇𝗲𝘀 m𝗶𝗻𝗼𝗿𝘀, j𝗼𝗸𝗲𝘀 a𝗯𝗼𝘂𝘁 ra𝗽𝗲, 𝗲𝘁𝗰.
 ● 𝗣𝗥𝗢𝗦𝗛𝗜𝗣𝗣𝗘𝗥𝗦.
 ● 𝘂𝗻𝗱𝗲𝗿 𝟭3, 𝗼𝘃𝗲𝗿 𝟮5.
 ● 𝗖𝗮𝘁 𝗵𝗮𝘁𝗲𝗿𝘀 𝘀𝘁𝘂𝗰𝗸 𝗼𝘂𝘁 𝘁𝗼𝗻𝗴𝘂𝗲 𝗲𝗺𝗼𝗷𝗶.

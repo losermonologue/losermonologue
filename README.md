@@ -15,9 +15,11 @@ MY STRAWPAGE IS BEST VIEWED ON PC chuu~ ♥ ──★ ˙🍙 ̟ !!
 
 ✩░▒▓▆▅▃▂▁𝐆𝐞𝐧𝐬𝐡𝐢𝐧 ! : ▁▂▃▅▆▓▒░✩ 731082122
 
-<img width="220" height="194" alt="obey-me-mammon" src="https://github.com/user-attachments/assets/ae7ef64b-19db-48f0-9e02-00c64f559b57" />
+<img width="480" height="360" alt="Image" src="https://github.com/user-attachments/assets/5a2b9260-bdf4-4966-ae68-72662d762817" />
 
-<img width="220" height="198" alt="mammon-obey-me" src="https://github.com/user-attachments/assets/4e157051-3f3a-4349-bc87-cdbd82d8344c" />
+<img width="360" height="360" alt="Image" src="https://github.com/user-attachments/assets/c0fb87a9-7a8e-4c22-b06a-ca0da06bef78" />
+
+<img width="498" height="320" alt="Image" src="https://github.com/user-attachments/assets/239ba475-c906-4a2c-b03b-b2435cf8f5a5" />
 
 
 【﻿♟️ ＤＮＩ ♟️】
@@ -58,10 +60,17 @@ MY STRAWPAGE IS BEST VIEWED ON PC chuu~ ♥ ──★ ˙🍙 ̟ !!
 ​ please dont pressure me into keeping up the conversations, im so bad at it :(( i'll talk more once im comfortable. i am a great listener though,!
 
 ⋆.ೃ࿔🎱*:･
+random senketsu gifs
 
-<img width="220" height="124" alt="mammon-obey-me-obey-me" src="https://github.com/user-attachments/assets/86fa39b7-5890-45d1-8d3f-9cec116523a8" />
+<img width="275" height="362" alt="Image" src="https://github.com/user-attachments/assets/9e885f03-5432-4f3a-a643-f6fea1349b83" />
 
-<img width="220" height="124" alt="obey-me-obey-me-anime" src="https://github.com/user-attachments/assets/8ad393b7-3e0b-456b-a23d-60a0e2091d36" />
+<img width="374" height="369" alt="Image" src="https://github.com/user-attachments/assets/c7823346-d143-4254-967b-43ce8200e766" />
 
-<img width="220" height="128" alt="obey-me-anime" src="https://github.com/user-attachments/assets/5cce3ffb-4ab4-45cb-8960-4778d00b7ea2" />
+<img width="374" height="374" alt="Image" src="https://github.com/user-attachments/assets/323320b4-d5b1-47a2-9bae-9fa78b704478" />
+
+<img width="374" height="211" alt="Image" src="https://github.com/user-attachments/assets/3e2771d2-5540-4264-b21f-9c1843df2bc5" />
+
+<img width="480" height="360" alt="Image" src="https://github.com/user-attachments/assets/10b27a12-4379-47a0-b1d2-4c095c9663e8" />
+
+<img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/d226dede-f47f-44ba-a898-b6ab03aeb460" />
 

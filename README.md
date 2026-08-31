@@ -62,13 +62,13 @@ random senketsu gifs
 
 <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/9e885f03-5432-4f3a-a643-f6fea1349b83" />
 
-<img width="374" height="369" alt="Image" src="https://github.com/user-attachments/assets/c7823346-d143-4254-967b-43ce8200e766" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/c7823346-d143-4254-967b-43ce8200e766" />
 
-<img width="374" height="374" alt="Image" src="https://github.com/user-attachments/assets/323320b4-d5b1-47a2-9bae-9fa78b704478" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/323320b4-d5b1-47a2-9bae-9fa78b704478" />
 
-<img width="374" height="211" alt="Image" src="https://github.com/user-attachments/assets/3e2771d2-5540-4264-b21f-9c1843df2bc5" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/3e2771d2-5540-4264-b21f-9c1843df2bc5" />
 
-<img width="480" height="360" alt="Image" src="https://github.com/user-attachments/assets/10b27a12-4379-47a0-b1d2-4c095c9663e8" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/10b27a12-4379-47a0-b1d2-4c095c9663e8" />
 
-<img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/d226dede-f47f-44ba-a898-b6ab03aeb460" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/d226dede-f47f-44ba-a898-b6ab03aeb460" />
 

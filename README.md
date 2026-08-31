@@ -19,6 +19,8 @@ MY STRAWPAGE IS BEST VIEWED ON PC chuu~ ♥ ──★ ˙🍙 ̟ !!
 
 <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/239ba475-c906-4a2c-b03b-b2435cf8f5a5" />
 
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/8472fdf0-7992-4ff4-a223-e938253adbb6" />
+
 
 【﻿♟️ ＤＮＩ ♟️】
 ● making dirty jokes very often when we arent friends.
@@ -72,3 +74,6 @@ random senketsu gifs
 
 <img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/d226dede-f47f-44ba-a898-b6ab03aeb460" />
 
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/a1c02429-3dc8-49b1-9880-00593b506cbc" />
+
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/34c0a9ab-d8e2-4237-b8e4-54a47a723411" />

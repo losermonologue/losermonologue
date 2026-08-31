@@ -60,7 +60,7 @@ MY STRAWPAGE IS BEST VIEWED ON PC chuu~ ♥ ──★ ˙🍙 ̟ !!
 ⋆.ೃ࿔🎱*:･
 random senketsu gifs
 
-<img width="275" height="362" alt="Image" src="https://github.com/user-attachments/assets/9e885f03-5432-4f3a-a643-f6fea1349b83" />
+<img width="200" height="200" alt="Image" src="https://github.com/user-attachments/assets/9e885f03-5432-4f3a-a643-f6fea1349b83" />
 
 <img width="374" height="369" alt="Image" src="https://github.com/user-attachments/assets/c7823346-d143-4254-967b-43ce8200e766" />
 

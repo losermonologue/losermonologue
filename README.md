@@ -15,7 +15,7 @@ MY STRAWPAGE IS BEST VIEWED ON PC chuu~ ♥ ──★ ˙🍙 ̟ !!
 
 ✩░▒▓▆▅▃▂▁𝐆𝐞𝐧𝐬𝐡𝐢𝐧 ! : ▁▂▃▅▆▓▒░✩ 731082122
 
-<img width="480" height="360" alt="Image" src="https://github.com/user-attachments/assets/5a2b9260-bdf4-4966-ae68-72662d762817" />
+<img width="280" height="240" alt="Image" src="https://github.com/user-attachments/assets/5a2b9260-bdf4-4966-ae68-72662d762817" />
 
 <img width="498" height="320" alt="Image" src="https://github.com/user-attachments/assets/239ba475-c906-4a2c-b03b-b2435cf8f5a5" />
 

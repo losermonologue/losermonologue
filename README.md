@@ -17,8 +17,6 @@ MY STRAWPAGE IS BEST VIEWED ON PC chuu~ ♥ ──★ ˙🍙 ̟ !!
 
 <img width="480" height="360" alt="Image" src="https://github.com/user-attachments/assets/5a2b9260-bdf4-4966-ae68-72662d762817" />
 
-<img width="360" height="360" alt="Image" src="https://github.com/user-attachments/assets/c0fb87a9-7a8e-4c22-b06a-ca0da06bef78" />
-
 <img width="498" height="320" alt="Image" src="https://github.com/user-attachments/assets/239ba475-c906-4a2c-b03b-b2435cf8f5a5" />
 
 
